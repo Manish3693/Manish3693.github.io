@@ -1,2 +1,2 @@
-# Manish3693.github.io
-My Portfolio
+# My Portfolio
+By Manish Reddy K
